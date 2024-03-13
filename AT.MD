@@ -1,1 +1,1 @@
-Arnav Taneja is from Chandigarh
+Arnav Taneja is from Bhatinda
